@@ -1,2 +1,0 @@
-# PROYECTOFinalizado
-Proyecto concluido
